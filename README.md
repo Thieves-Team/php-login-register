@@ -1,4 +1,7 @@
 php-login-register
 ==================
+https://vezifilme.online/the-black-phone-online-subtitrat/
 
-credits: GarryOne @ Thieves-Team.com
+https://vezifilme.online/nope-online-subtitrat/
+
+https://vezifilme.online/
